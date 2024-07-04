@@ -1,1 +1,0 @@
-# smart-realities-arpyoyh5
